@@ -1,0 +1,2 @@
+# ESX_inpatient
+ESX_inpatient ADD BLI GANTI BAJU RAWAT INAP RS
